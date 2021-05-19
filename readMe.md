@@ -1,0 +1,1 @@
+Lemonade is a refreshing drink for summers.I personally love it.
